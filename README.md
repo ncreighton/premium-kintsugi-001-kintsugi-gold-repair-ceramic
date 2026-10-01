@@ -1,0 +1,2 @@
+# premium-kintsugi-001-kintsugi-gold-repair-ceramic
+Professional heritage-lacquerwork Notion template — without the professional price tag.  Fully documented: every section explained so you know exactly what to customize. Mobile-optimized for Notion iOS and Android — works everywhere you work.  ## What's Included  - Kintsugi Gold Repair &amp; Ceramic Joining Process Log — fully configured and ready to u
